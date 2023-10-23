@@ -7,4 +7,4 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm crhistian
 
-*and i love this: (https://qsmp.fandom.com/pt-br/wiki/QSMP_Wiki)
+*and i love this*: [qsmp wiki](https://qsmp.fandom.com/pt-br/wiki/QSMP_Wiki)
