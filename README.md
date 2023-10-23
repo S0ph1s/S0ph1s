@@ -8,4 +8,4 @@
 - ⚡ Fun fact: i'm crhistian
 
 *and i love this*: [qsmp wiki](https://qsmp.fandom.com/pt-br/wiki/QSMP_Wiki)
-![richas dançandinho](https://pin.it/6B8jTTk)
+![image](https://github.com/S0ph1s/S0ph1s/assets/142347346/e31d18ea-d662-4c87-af71-451178e1f957)
