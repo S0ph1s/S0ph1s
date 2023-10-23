@@ -9,3 +9,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm crhistian
 <3
+![](https://pin.it/pbgIl3X)
