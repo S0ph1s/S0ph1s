@@ -1,4 +1,4 @@
-### Hey guys 👋
+8### Hey guys 👋
 
 
 **S0ph1s/S0ph1s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile
@@ -8,4 +8,7 @@
 - ⚡ Fun fact: i'm crhistian
 
 *and i love this*: [qsmp wiki](https://qsmp.fandom.com/pt-br/wiki/QSMP_Wiki)
-![image](https://github.com/S0ph1s/S0ph1s/assets/142347346/e31d18ea-d662-4c87-af71-451178e1f957)
+
+![image](https://github.com/S0ph1s/S0ph1s/assets/142347346/8a1dfe39-23b7-4e64-8e30-e291e37f15b3)
+
+byee :EMOJICODE::pinched_fingers:
