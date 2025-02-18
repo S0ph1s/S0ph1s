@@ -9,4 +9,3 @@
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRc7hPMognmHOs-u4TlhApAdJgw6jNuVM7_8w&s" />
 
 
-byee:pinched_fingers:
