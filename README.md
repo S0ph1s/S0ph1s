@@ -4,9 +4,9 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm crhistian
 
-*and i love this*: [qsmp wiki](https://qsmp.fandom.com/pt-br/wiki/QSMP_Wiki)
+*and i love this*: [formula one](https://www.formula1.com/)
 
-![image](https://github.com/S0ph1s/S0ph1s/assets/142347346/00eada4f-121e-4e66-b1b9-df5106be065f)
+![image](https://senna.com/wp-content/uploads/2016/03/Donington1993-1.jpg)
 
 
 byee:pinched_fingers:
